@@ -1,6 +1,6 @@
-# 🌷 Hi, I'm Bella! Nice to meet you!
+# 🌷 Hi, I'm Bella!
 
-Here are a few facts about me:
+Nice to meet you! Here are a few facts about me:
 
 👩🏻‍💻 I'm an undergraduate computer science and game development major  
 🎨 I love enhancing my coding projects with my digital artwork  
