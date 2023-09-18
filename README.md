@@ -1,4 +1,4 @@
-# 🌷 Hi, I'm Bella!
+# 🌷 Hi, I'm Bella! ଘ(੭ˊᵕˋ)੭* ੈ✩‧₊˚
 
 Nice to meet you! Here are a few facts about me:
 
