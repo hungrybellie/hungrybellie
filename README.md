@@ -6,4 +6,4 @@ Nice to meet you! Here are a few facts about me:
 🎨 I love enhancing coding projects with my digital artwork.  
 🫶 I aim for all my programs to emit kindess and warmth through their purpose and design.  
 
-Hope you enjoy your stay here!
+Hope you enjoy your time on my page!
